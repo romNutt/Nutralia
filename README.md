@@ -1,2 +1,4 @@
 # Nutralia
-equipo de nutrición, resolver cualquier duda
+equipo de nutrición, ayundaote a desarollarte sanamente
+sabiduría
+Diangosticos con fuentes confiables
